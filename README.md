@@ -1,2 +1,2 @@
 # mini-projects
- nyyours truly
+ by yours truly
